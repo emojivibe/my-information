@@ -1,4 +1,4 @@
-# meri-tabahi
+# my-information
 i want to learn bt i dont know what
 
 # love from india
